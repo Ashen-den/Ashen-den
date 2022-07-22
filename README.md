@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **nothing much,**
 
-- 👨‍💻 All of my projects are available at [https://github.com/Ashen-den](https://github.com/Ashen-den)
+- 👨‍💻 All of my projects are available at https://github.com/hardeooh
 
 - 💬 Ask me about **hobbies, life, ya know, important things!**
 
